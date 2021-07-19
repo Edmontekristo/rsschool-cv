@@ -1,1 +1,0 @@
-https://Edmontekristo.github.io/rsschool-cv/cv
